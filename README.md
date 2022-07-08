@@ -4,4 +4,3 @@
 - 💞️ I’m looking to make good communication with developers about everything in life first and then business.
 - -------------------------
 - 📫 We are people not a robots. I will make sure you're feeling comfortable talking with me about anything.
-- 
