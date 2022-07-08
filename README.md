@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @steffsolutions
+- 👀 I’m interested in making secure web & apps cross platform services for people. Everything Private & Secure in life as much as possible.
+- 🌱 I’m currently learning {HTML, CSS, JS, Penetration Testing, CyberSec, Cryptocurrency and more...}
+- 💞️ I’m looking to make good communication with developers about everything in life first and then business.
+- -------------------------
+- 📫 We are people not a robots. I will make sure you're feeling comfortable talking with me about anything.
+- 
